@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kalsuri, You may know me as Christian or John.
+- 👋 Hi! I’m @kalsuri, You may know me as Christian or John.
 - 👀 I’m interested in everything! I meant it; if you have special interests I would love to hear about them. I love knowledge and gaining knowledge! My special interests are currently focused on maintence of my home and of my possesions.
       I am learning woodworking for my room and furniture as well as car mechanics for my 2005 honda civic!
 - 🌱 I’m currently pursuing a bachelors in Applied Mathematics with a minor in Computer Science.
